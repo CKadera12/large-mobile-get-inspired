@@ -1,1 +1,0 @@
-# large-mobile-get-inspired
